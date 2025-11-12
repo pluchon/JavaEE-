@@ -2,7 +2,7 @@
 
 ***
 
-![1758766224464](https://zlhimage.oss-cn-guangzhou.aliyuncs.com/202510311118165.jpg)
+![1758766224464](https://zlhimage.oss-cn-guangzhou.aliyuncs.com/202508281800410.png)
 
 ***
 
